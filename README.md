@@ -1,0 +1,1 @@
+This is the cringe python code i had to write for my Calculus class and please just ignore it thank you
